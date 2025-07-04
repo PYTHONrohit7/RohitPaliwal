@@ -47,7 +47,7 @@ I'm a passionate learner, researcher, and developer with a strong interest in so
 ## 📫 How to Reach Me
 
 - 📧 Email: [ronithpaliwal4@gmail.com](mailto:ronithpaliwal4@gmail.com)  
-- 💼 LinkedIn: [Rohit Paliwal]([https://www.linkedin.com/in/rohit-paliwal-ai/](https://www.linkedin.com/in/rohit-paliwal-12a2a1202/)  
+- 💼 LinkedIn: [Rohit Paliwal]([https://www.linkedin.com/in/rohit-paliwal-ai/](https://www.linkedin.com/in/rohit-paliwal-12a2a1202/))  
 - 🌐 Portfolio (coming soon!)
 
 ---
